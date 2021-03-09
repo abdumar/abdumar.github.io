@@ -2,4 +2,4 @@
 Web pribadi Gaes
 aye...aye...
 
-by wwwabdumar.com
+by www.abdumar.com
